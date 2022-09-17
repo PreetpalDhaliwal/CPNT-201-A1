@@ -6,7 +6,7 @@
 
 3. Job Description: I work in Amazon's delivery station located in the South East (SE). As an overnight associate, I and along with my co-workers sort and process parcels that will later be delivered out around 9AM. We are the very last stop before customers packages are sent on their way. Fun Fact: From 1:20 AM - 9:00 AM, the facility I work for recives 70,000 - 80,000 parcels everyday.
 
-##Responsibility 
+## Responsibility 
 
 - Complete task in a safe environment
 
